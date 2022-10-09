@@ -1,0 +1,2 @@
+# Nova-
+Jangan berhenti belajar
